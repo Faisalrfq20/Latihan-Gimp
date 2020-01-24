@@ -1,0 +1,2 @@
+# Latihan-Gimp
+latihan latihanan
